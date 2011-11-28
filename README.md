@@ -12,6 +12,8 @@
     
     Jedi Robes             | http://goo.gl/o9PpA
     
+    Can Crusher            | http://goo.gl/GJkOW
+    
     Lamborghini Poster     | http://goo.gl/vmwbN
                            | http://goo.gl/pnXXI
                            | http://goo.gl/VLSCq
