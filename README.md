@@ -2,6 +2,8 @@
     
     Github Shirt           | http://goo.gl/lvHNf
     
+    "Beer" Shirt           | http://goo.gl/4MQoD
+    
     MooTools Shirt         | http://goo.gl/WKM9S
     
     Atari Pint Glasses     | http://goo.gl/dlLaR
