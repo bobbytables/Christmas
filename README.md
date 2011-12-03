@@ -1,16 +1,10 @@
+    Bose Ae2 Headphones    | http://goo.gl/XnlTN (I'll seriously love you forever)
+
     Apple TV               | http://goo.gl/dq0Wk
     
     Github Shirt           | http://goo.gl/lvHNf
     
-    "Beer" Shirt           | http://goo.gl/4MQoD
-    
     MooTools Shirt         | http://goo.gl/WKM9S
-    
-    Atari Pint Glasses     | http://goo.gl/dlLaR
-    
-    Circuit Board Coasters | http://goo.gl/u5NV8
-    
-    Jedi Robes             | http://goo.gl/o9PpA
     
     Can Crusher            | http://goo.gl/GJkOW
     
@@ -27,7 +21,3 @@
     Bowling Polo           | http://goo.gl/9oEgB
     
     The Stig Shirt         | http://goo.gl/nu4Yo
-
-## I'll love you forever gifts.
-    
-    Bose Ae2 Headphones    | http://goo.gl/XnlTN
