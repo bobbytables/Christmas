@@ -8,6 +8,8 @@
     
     Iron Man Macbook       | http://goo.gl/3zvqO
     
+    A slightly Nice office chair
+    
     MooTools Shirt         | http://goo.gl/WKM9S
     
     Can Crusher            | http://goo.gl/GJkOW
